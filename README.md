@@ -4,6 +4,7 @@ Losing my SHIT anyways HAAAIII HIIHIIIIHIIII WAVES AT YOU!!! ~~READ MY PATREON F
 https://pluralkit.xyz/s/zpyfb?l=pk&c=f <— check for fronters here + member list
 
 Rae (Gojo fictroject, uses 🩵 as identifier) is the system host!! Otherhearted, I love silly snow leopards sm..
+
 ![17365008889367278449648294322770](https://github.com/user-attachments/assets/5e7a808f-e070-417a-8971-834fa91b1da6)
 
 
