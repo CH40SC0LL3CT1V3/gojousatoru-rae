@@ -5,7 +5,7 @@ https://pluralkit.xyz/s/zpyfb?l=pk&c=f <— check for fronters here + member lis
 
 Rae (Gojo fictroject, uses 🩵 as identifier) is the system host!! Otherhearted, I love silly snow leopards sm..
 
-![17365008889367278449648294322770](https://github.com/user-attachments/assets/5e7a808f-e070-417a-8971-834fa91b1da6)
+![17365016756946163679308041509222](https://github.com/user-attachments/assets/75b7e5e5-c6d3-4ca0-a263-32979477d58a)
 
 
 Eryx/Chaos
