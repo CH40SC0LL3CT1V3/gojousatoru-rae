@@ -20,7 +20,7 @@ He/They | Fictroject heavy OSDD-1b system | 05/11 (bodily 16 currently) 🎂
 
 - Ask to friend request
 
-- Collectively taken by no one (host is taken by Scottystein79)
+- Collectively taken by no one
 
 - *PLEASE* treat every system member as a person and NOT a character!!
 
@@ -64,7 +64,7 @@ Needle (I love you [/p] you silly goof of a sibling)
 
 Sunky (You're the goobiest brother!!)
 
-PARTNER!!! -> Scottypotty Stinkystein79 😼😼 (@Scottystein79 on Twitter woahs) -🩵
+PARTNER!!! -> no one, we broke up. -🩵
 
 
 
