@@ -1,6 +1,8 @@
 # gojousatoru-rae
 Losing my SHIT anyways HAAAIII HIIHIIIIHIIII WAVES AT YOU!!! ~~READ MY PATREON FOR A DETAILED UHHHH THING!!!~~ Our Patreon is suspended 🙁
 
+We made a discord server, come join the community!! https://discord.com/invite/MWGufdG8V7
+
 https://pluralkit.xyz/s/zpyfb?l=pk&c=f <— check for fronters here + member list
 
 Rae (Gojo fictroject, uses 🩵 as identifier) is the system host!! Otherhearted, I love silly snow leopards sm..
