@@ -12,7 +12,7 @@ Rae (Gojo fictroject, uses 🩵 as identifier) is the system host!! Otherhearted
 
 Eryx/Chaos
 
-He/They | Fictroject heavy OSDD-1b system | 05/11 (bodily 16 currently) 🎂
+He/They | Fictroject heavy OSDD-1b system | 05/11 (bodily 18 currently) 🎂
 
 - Bodily transmasc
 
